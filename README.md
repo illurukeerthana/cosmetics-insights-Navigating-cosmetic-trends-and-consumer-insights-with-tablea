@@ -1,0 +1,1 @@
+# cosmetics-insights-Navigating-cosmetic-trends-and-consumer-insights-with-tablea
